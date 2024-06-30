@@ -14,7 +14,7 @@
  
  🌱 I’m currently learning **Neural Network and ADvanced AI**
 
-💬 Ask me about **AIML, Robotics , Data processing...... [here](https://github.com/salesp07/salesp07/issues)**
+💬 Ask me about **AIML, Robotics , Data processing...... [here](https://www.linkedin.com/in/aman-khapre-8b34a1256/)**
 
 ⚡ Fun fact **I am Funny and Cute **
 
